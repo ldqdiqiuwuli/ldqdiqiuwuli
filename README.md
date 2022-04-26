@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ldqdiqiuwuli
-- 👀 I want a boyferind
+- 👀 I want a boyfriend
 - 🌱 I’m currently learning gempy
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ldqxiaopengyou@163.com
